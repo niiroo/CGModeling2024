@@ -1,1 +1,0 @@
-# CGModeling2024
